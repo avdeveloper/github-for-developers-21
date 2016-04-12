@@ -1,2 +1,4 @@
 Albert Villaroman is from Long Island who likes to eat sushi and take photographs.
 He likes purple.
+Yes he does.
+
